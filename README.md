@@ -1,1 +1,1 @@
-# schneicw.github.i
+# schneicw.github.io
